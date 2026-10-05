@@ -1,0 +1,1 @@
+# Vandal Hearts Hard Mode
